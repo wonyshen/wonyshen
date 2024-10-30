@@ -5,6 +5,11 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- shenwony@gmail.com (0768-316111)
+dongdong3227@gmail.com (shenwony@gmail.com)
+AlannahMack9119@hotmail.com
+isabelllabier2798@hotmail.com
+
 https://drive.google.com/file/d/1z3eLlb1uk1Cn7aSHnuiMjKwN4JCRCDmw/view?usp=drive_link
 <!---
 wonyshen/wonyshen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
